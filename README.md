@@ -1,7 +1,7 @@
 ## Hi! I'm Anže 👋 My passion is web development.
 
 - 😽 Giving home to 3 purrfectly fluffy cats.
-- 🌍 Mother Earth takes care of me, therefore I try to give love back.
+- 🌍 Mother Earth loves me selflessly, therefore I try to give love back.
 - ✨ Favourite video game: Stardew Valley.
 - ⚡ Fun fact: I can solve Rubik's cube.
 - 🌱 Being alone in nature calms me down.
